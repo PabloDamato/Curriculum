@@ -23,7 +23,7 @@ Sou comunicativo, colaborativo e estou sempre em busca de aprendizado. Tenho hab
 
 Conhecimento sólido das normas técnicas e regulamentações pertinentes à instalação e operação de sistemas de segurança eletrônica. Habilidade de comunicação com capacidade para elaborar relatórios técnicos detalhados. Identificar e resolver problemas técnicos de forma eficiente, garantindo a continuidade das operações. Fortes habilidades interpessoais, capacidade de trabalhar em equipe e lidar com clientes de forma profissional e cortês. Gerenciamento de tempo e priorização de tarefas para garantir a conclusão dos projetos no prazo estabelecido.
 
-### Técnico em Campo Pleno - 11/2016 a 11/2019<br>SV Consultoria Industria e Comercio de Equipamentos LTDA
+### Técnico em Campo Pleno - 01/2016 a 11/2019<br>SV Consultoria Industria e Comercio de Equipamentos LTDA
 
 > Empresa do ramo de Soluções de Segurança Eletrônica Integrada.
 
